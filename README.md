@@ -4,9 +4,7 @@ What did the rock say to the sun? Get a job ya big shiny orb thangl.... hahhahah
 
 1 pi = 1 sig = 1Terabyte of laughter in c-lang
 
-Movies -------
+Movies ------- Odeas
 
-https://www.tiktok.com/@lanesealscountrysinger
-
-https://www.tiktok.com/@ghost_of_avalon
-
+Anrichrist 5L The Summoning
+AtreuxL Into The ArtVerse
