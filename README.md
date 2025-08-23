@@ -13,3 +13,5 @@ Book of Loke Chapter 11.5
 In the End some may pass the class, but in the end, there is still more 4, us to see, in the looking glass... @*TLewis typo 
 
 https://www.vegas.com/shows/concerts/lindsey-stirling-las-vegas/?_&utm_source=google&utm_medium=cpc&utm_campaign=21010992919&utm_term=&adgroup=&target=&loc_i=&loc_p=1024528&gad_source=2&gad_campaignid=21010994818&gclid=EAIaIQobChMIrdTXheqhjwMVJSbUAR2C0i8OEAEYASAAEgKJTfD_BwE
+
+https://www.youtube.com/watch?v=aHjpOzsQ9YI&list=RDEMzT1XwmFnIup_KYXuc2rUZA&start_radio=1
