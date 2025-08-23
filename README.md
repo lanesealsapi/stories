@@ -6,5 +6,6 @@ What did the rock say to the sun? Get a job ya big shiny orb thangl.... hahhahah
 
 Movies ------- Odeas
 
-Anrichrist 5L The Summoning
-AtreuxL Into The ArtVerse
+Anrichrist 5: The Summoning
+
+Atreux: Into The ArtVerse
