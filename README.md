@@ -2,8 +2,6 @@
 
 What did the rock say to the sun? Get a job ya big shiny orb thangl.... hahhahaha... jk
 
-1 pi = 1 sig = 1Terabyte of laughter in c-lang
-
 Movies ------- Odeas
 
 Anrichrist 5: The Summoning @lanesealscountrysinger
