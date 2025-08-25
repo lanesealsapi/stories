@@ -6,10 +6,10 @@ What did the rock say to the sun? Get a job ya big shiny orb thangl.... hahhahah
 
 Movies ------- Odeas
 
-Anrichrist 5: The Summoning
+Anrichrist 5: The Summoning @lanesealscountrysinger
 
-Atreux: Into The ArtVerse
+Atreux: Into The ArtVerse @atreux
 
 parody Poss.
 
-Thunderballs - THE Ai HURRicane Movie...
+Thunderballs - THE Ai HURRicane Movie... @unknown
